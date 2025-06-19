@@ -1,1 +1,1 @@
-Proje Videosu: https://youtu.be/oeGN8WLlV94 
+Proje videosu: https://youtu.be/oeGN8WLlV94 
